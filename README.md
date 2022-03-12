@@ -1,2 +1,4 @@
 # kiem-tra-lich-su-tin-nhan-mobi
 Cách tra cứu lich su tin nhan mobi đang được nhiều người tìm kiếm với mong muốn nắm rõ hoạt động liên lạc trên thuê bao.
+<p style="text-align: justify;"><a href="https://3gmobifones.com/kiem-tra-lich-su-tin-nhan-cua-mobifone"><strong>Cách tra cứu lịch sử tin nhắn sim MobiFone</strong></a> đang được nhiều người tìm kiếm với mong muốn nắm rõ hoạt động liên lạc trên thuê bao. Tin vui cho bạn là hiện nhà mạng đã hỗ trợ kiểm tra lịch sử SMS của Mobi với thao tác siêu đơn giản mà không cần phải gọi điện cho tổng đài.</p>
+<p style="text-align: justify;">Vậy hình thức tra cứu đó là gì? Có tốn cước phí kiểm tra hay không? Có thể xem lại nội dung gì của tin nhắn? Ngay dưới đây <a href="https://3gmobifones.com/">3gmobifones.com</a> sẽ giải đáp tất tần tật các câu hỏi trên đến quý khách hàng nên hãy dành 1 ít thời gian theo dõi và thực hiện nhé.</p>
